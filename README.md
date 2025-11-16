@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **khasimshaik0762@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1BKie0usjm6_HI6YCmzqmJZa1WmMnEI7c/view?usp=drive_link](https://drive.google.com/file/d/1BKie0usjm6_HI6YCmzqmJZa1WmMnEI7c/view?usp=drive_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1aPH91muUdry92MRgF94ht0NLQAd7Lk2y/view?usp=drive_link](https://drive.google.com/file/d/1aPH91muUdry92MRgF94ht0NLQAd7Lk2y/view?usp=drive_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
